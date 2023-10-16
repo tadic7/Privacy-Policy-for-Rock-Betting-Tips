@@ -10,7 +10,7 @@ Welcome to Rock Betting Tips! This Privacy Policy outlines how we collect, use, 
 
 We may collect the following types of personal information:
 
-Contact Information:e mail address and phone number.
+Contact Information: Email address and phone number.
 Betting Preferences: Information about your betting preferences and activities.
 3. How We Use Your Information
 
